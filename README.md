@@ -1,0 +1,1 @@
+#I recoded it by looking at the first published google version using the Wayback Machine archive.![Screenshot_1](https://github.com/Bahadir-Uysal/Wayback-Machine-1998-google/assets/149229956/61a982af-9732-488b-bdb2-244fc449a70d)
